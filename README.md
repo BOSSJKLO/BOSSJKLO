@@ -1,4 +1,4 @@
-พี่เดฟ้ม เกิดปี ไหน?
+พี่เเฟ้ม เกิดปี ไหน?
 
 1. 2556   https://pastebin.com/raw/37f5uLE7
 2. 2555   https://pastebin.com/raw/E14ijtZM
